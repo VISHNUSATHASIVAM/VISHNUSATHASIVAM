@@ -5,11 +5,11 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on world wide welfare centers'parliament.com..
+- 🔭 I’m currently working on www.The Art of Administration blogspot.com
 - 🌱 I’m currently learning to give commandsto the computer to work .
 - 👯 I’m looking to collaborate on github...
 - 🤔 I’m looking for help with . Github..
-- 💬 Ask me about the role of the world wide welfare centers'parliament.com
+- 💬 Ask me about the role of The Art of Administration blogspot.com
 - 📫 How to reach me: jogheevishnusathasivan@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
