@@ -5,7 +5,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on www.The Art of Administration blogspot.com
+- 🔭 I’m currently working on www.The Art of Administration blogspot.com and About Horse races Blogspot .com 
 - 🌱 I’m currently learning to give commandsto the computer to work .
 - 👯 I’m looking to collaborate on github...
 - 🤔 I’m looking for help with . Github..
